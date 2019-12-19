@@ -1,0 +1,2 @@
+# Amruth
+Always a seeker
